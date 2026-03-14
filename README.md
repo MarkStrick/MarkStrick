@@ -2,7 +2,7 @@
 - 👀 I’m interested in Codeing
 - 🌱 I’m currently learning IDK
 
-- Facebook: Kittiphon Sukanya
+- Facebook: 
 - Discord: janssoo
 
 
