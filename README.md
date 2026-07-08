@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @MarkStrick
 - 👀 I’m interested in Codeing
 - 🌱 I’m currently learning IDK
-
+- My sec GIT: https://github.com/Busondahood
 - Facebook: 
 - Discord: janssoo
 
